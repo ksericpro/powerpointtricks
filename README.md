@@ -1,2 +1,2 @@
-# powerpointtricks
-Create Powerful Powerpoint Presentation.
+# Summary
+Should have master all these at a earlier age.
